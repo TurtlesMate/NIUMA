@@ -1,2 +1,2 @@
-# NIUMA-X1
+# NIUMA
 My DEAR roommate.
